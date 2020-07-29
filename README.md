@@ -1,3 +1,3 @@
 # test-repo
-## Thanks
+## Thanks for the support
 ### Bye
